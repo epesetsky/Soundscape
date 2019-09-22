@@ -1,4 +1,4 @@
-Technology-Savvy vs. Sabotage
+Technology-Savvy or Sabotage?
 
 This task, as my first assignment in my intro course of Composing Digital Media, asked us to "arrange layers of sound to convey a sense of place and story". With more and more advances in technology by the day, we see more and more people of all ages glued to their cell phone. My soundscape poses the scene of a Pitt student who is addicted to technology, allowing it to control the routines in their day and essentially their entire life. As the listener might notice, they are always checking their phone between each thing they do. When walking on Forbes, they are so busy texting that they can't look up from their phone. They bump into another student in the street, and rather than apologize, they continue to look down and text, tweet, etc. At the end of the night, the last thing they do before bed is use their phone and immediately when they put the phone down, they snore to sleep, as they are exhausted from such a technology-filled life. 
 

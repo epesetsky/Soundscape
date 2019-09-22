@@ -20,6 +20,10 @@
 
 * Shower scene and texting: my recording
 
+* "[phone short buzz](https://freesound.org/people/richwise/sounds/476836/)" by [richwise](https://freesound.org/people/richwise/) is licensed under [CC0 1.0](https://creativecommons.org/publicdomain/zero/1.0/)
+
+* "[Notification Up 1](https://freesound.org/people/FoolBoyMedia/sounds/234524/)" by [FoolBoyMedia](https://freesound.org/people/FoolBoyMedia/) is licensed under [CC BY-NC 3.0](http://creativecommons.org/licenses/by-nc/3.0/)
+
 * "[yawning](https://freesound.org/people/Danieka/sounds/221519/)" by [Danieka](https://freesound.org/people/Danieka/) is licensed under [CC0 1.0](https://creativecommons.org/publicdomain/zero/1.0/)
 
 * "[phonelock.WAV](https://freesound.org/people/caileykehoe/sounds/450604/)" by [caileykehoe](https://freesound.org/people/caileykehoe/) is licensed under [CC BY-NC 3.0](https://creativecommons.org/licenses/by-nc/3.0/)

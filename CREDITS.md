@@ -12,6 +12,8 @@
 
 * Sound of texting: my recording
 
+* Twitter notification: my recording 
+
 * Sound of cross walk: my recording
 
 * Bumping into someone: my recording
